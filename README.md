@@ -1,3 +1,4 @@
 Robert Downey Jr
-Cris Patt
+Bruce Willis
 Morgan Freeman
+James McAvoy
